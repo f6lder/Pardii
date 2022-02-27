@@ -3,10 +3,10 @@ Roblox Animator
 
 Experienced animator that can do long or short term
 
-*Rlatively active*
-*Prices negotiable*
-*R6 ONLY*
-*Blender & Moon animator*
+*Rlatively active*,
+*Prices negotiable*,
+*R6 ONLY*,
+*Blender & Moon animator*,
 *Works Fast*
 
 Previous work
